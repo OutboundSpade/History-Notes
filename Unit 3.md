@@ -30,8 +30,6 @@
   
   - Insure citizens against economic disasters
 
-
-
 # Day 7 - Critics of the New Deal
 
 ---
@@ -78,4 +76,78 @@ Share of our Wealth Plan
 
 - 1937: Economy back in recession
 
+# Day 8 - Impact of the New Deal
 
+---
+
+## Economic Impact of the New Deal
+
+- Employed millions but rates did not return to pre-1929 levels until WWII begins
+
+- Stabilized banks, stock market, and agriculture
+
+- Long-term reforms made (such as SSA)
+
+- Beginning of deficit spending
+
+## Political Impact of New Deal
+
+- New era of government activism
+  
+  - Creation of welfare state
+  
+  - Farmers, industry, financial sectors now regulated
+
+- Democratic Coalition
+  
+  - Lower-income, trade unons, immigrants, minorities
+
+# Day 9 - Causes of the Great Depression in Canada
+
+---
+
+## Overdependence on Trade
+
+- Raw Materials: 
+  
+  - Wheat
+  
+  - Fish
+  
+  - Lumber
+
+- Manufacturing still developing
+
+- Exported to US and Great Britain
+
+## Ailing Agriculture
+
+- Over-expansion in 1920s
+
+- Overproduction postwar
+
+- Dust Bowl
+
+## Consumer Boom Short-Lived
+
+- Over-extension of credit led to debts
+
+- Overproduction of goods
+
+- Lack of demand creates layoffs
+
+## Share Speculation
+
+- Less investors than US, but still over-speculated
+
+- Less bank failures due to regulation
+
+- Less dramatic stock market crash
+
+## WWI Debt
+
+~ $2 billion in debt (today)
+
+## Crisis in US
+
+- Lack of American investment in Canada
