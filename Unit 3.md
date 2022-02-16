@@ -151,3 +151,67 @@ Share of our Wealth Plan
 ## Crisis in US
 
 - Lack of American investment in Canada
+
+# Day 10 - Solutions to Canada's Great Depression
+
+---
+
+## Mackenzie King's Approach
+
+- Liberal Party PM
+
+- (1921-1930, 1935-1948)
+
+- Lost 1930 election
+
+- Prioritized federal debt over relief
+
+## R.B. Bennet's Approach
+
+- Conservative Party PM
+
+- 1930-1935
+
+- Laissez-Faire capitalist
+
+## Bennet's Solutions
+
+- Relief Camps: young men completed public works projects (20 cents/day)
+
+- Unemployment Relief Bill: Contributed 50% of relief funds. Provinces still went bankrupt
+
+- Raised import tariffs by 50%
+
+- Launched:
+  
+  - Canadian Radio Broadcasting Commission
+  
+  - National Air Transport
+  
+  - Bank of Canada
+  
+  - Wheat Board
+
+- 1935: <u>**Proposes**</u> a "New Deal"
+
+## On-to-Ottawa Trek
+
+- 1,500 camp workers train from Vancouver to Ottawa
+
+- Led by Arthur Evans (Communist)
+
+- Protests led to police clashes
+
+- resulted in camp reform and Bennet's lost reputation
+
+## King's Solutions
+
+- Re-elected in 1935
+
+- Trade deals with US/GB
+
+- Increase gov spending
+
+- Rowell-Sirois Commission:
+  
+  *gave fed govt tax power for welfare, pensions, unemployment insurance*
