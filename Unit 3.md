@@ -215,3 +215,25 @@ Share of our Wealth Plan
 - Rowell-Sirois Commission:
   
   *gave fed govt tax power for welfare, pensions, unemployment insurance*
+
+# Day 11 - Causes of the Great Depression in Latin America
+
+---
+
+## Causes of the Great Depression
+
+1. Lack of economic diversity (cash crops, little industry)
+   
+   - Sugar
+   
+   - Wheat
+   
+   - Coffee
+
+2. **<u>Over-reliance</u>** on trade
+   
+   - Severly affected by WWI, Stock Market Crash, and tariffs
+
+3. Low standards of living cause low domestic purchasing power
+
+4. US crisis causes drop in foreign investment which led to bank collapses
