@@ -237,3 +237,57 @@ Share of our Wealth Plan
 3. Low standards of living cause low domestic purchasing power
 
 4. US crisis causes drop in foreign investment which led to bank collapses
+
+
+
+# Day 12 - Great Depression in Brazil
+
+---
+
+## Brazil & the Depression
+
+- Coffee prices fall from overproduction (good harvests + trade decline)
+
+- Industries (clothing, mining, forestry) declined causing unemployment
+
+- People had less than 0.8% of their income
+
+- Brazil lacked foreign currency (couldn't afford imports)
+
+## Valorization
+
+- To enhance the value of a product through government action
+
+- Government would buy surplus coffee, withhold from world market until demand rose
+
+- President Washington Luiz failed to bail out coffee oligarchies
+
+- Government collapses
+
+- Vargas-led revolts
+
+## Getulio Vargas
+
+- President of Brazil (1930-45, 1951-54)
+
+- Replaced Congress with Estado Novo (fascist ideals)
+
+- Increased federal government's role
+
+- <u>**National Dept of Coffee**</u> destroyed surplus
+
+- **Used ISI** to grow industry
+
+- Public works programs (Christ Redeemer Statue)
+
+## ISI in Brazil
+
+- Tariffs on imports to grow domestic industry
+  
+  - Reduced imports by 75%
+  
+  - Steel, iron, aircraft, engine production
+  
+  - New middle class (industrialists)
+  
+  - Population increase
