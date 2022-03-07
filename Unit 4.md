@@ -42,4 +42,70 @@
 
 - $400 million went to South America
 
+# Day 2 - Inter-American Diplomacy
+
+---
+
+## Good Neighbor Policy
+
+**Goal:** Unite <u>**Western Hemisphere**</u>
+
+### Application
+
+1. Non-Intervention (military)
+   
+   - US Marines leave
+   
+   - Repealed Platt Amendment in Cuba
+
+2. Trade
+   
+   - Lowered tariffs
+
+3. Unity
+   
+   - Redefine stereotypes
+   
+   - Press, movies, radio, tourism
+
+### Effects
+
+Non-Intervention
+
+- Air bases built
+
+- Aid to strengthen militaries
+
+- Patrols to protect Panama Canal
+
+Trade
+
+- US became largest trading partner with Latin America
+
+- Raw materials supplied
+
+Unity
+
+- Cultural solidarity
+
+## 1939 Pan-American Security Zone
+
+- Created 1,000 mile security zone around Americas
+
+- Zone regulated by US ships
+
+## 1940 Havana Act
+
+- declared possessions of any defeated European nation <u>could not become German</u> territory
+
+## 1940 Permanent Joint Board on Defense
+
+- started an era of Canadian-American military co-operation
+
+- **Hyde Park Declaration**
+
+## 1945 Act of Chapultepec
+
+- Established <u>1st collective security</u> in western hemisphere
+
 
