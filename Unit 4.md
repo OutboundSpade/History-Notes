@@ -108,4 +108,50 @@ Unity
 
 - Established <u>1st collective security</u> in western hemisphere
 
+# Day 3 - Americas enter War
 
+---
+
+## Conscription in Canada
+
+- **1939** Pledged no conscription
+
+- **1940** Enlistment for home defense only (after France, Belgium fall)
+
+- **1942** Vote held to release government from "no conscription" pledge. <u>Tensions between English and French-speakers</u>
+
+- **1944** Authorized conscription overseas (after D-Day)
+
+## Conscription in US
+
+- Registration of men (21-36) began Oct. 1940
+
+- Expanded to 18-45 once US enters war
+
+- "Conscientious objectors"
+
+## Conscription in Latin America
+
+- Mexico - US conscripted Mexicans in return for citizenship
+
+- Brazil - Majority drafted and served 1 year. Low retention.
+
+## Battle of the Atlantic
+
+- 1939-1945 longest continuous battle of WWII
+
+- Canada: patrolled N. Atlantic, escorting convoys
+
+- US: anti-submarine campaign, ship production, garrisons Iceland
+
+- Mexico: patrolled Gulf of Mexico
+
+- Brazil: patrolled  S. Antlantic and Caribbean
+
+- Axis try to prevent Atlantic resupply to GB and USSR
+
+- Early battles favored German U-boat "wolf-packs"
+
+- Allies counter with fairly effective <u>convoy-system</u>
+
+- **Turning Point:** Allies break German codes and use new technology
