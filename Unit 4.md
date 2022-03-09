@@ -155,3 +155,41 @@ Unity
 - Allies counter with fairly effective <u>convoy-system</u>
 
 - **Turning Point:** Allies break German codes and use new technology
+
+# Day 4 - North African Campaign
+
+---
+
+- "Unforgiving" environment
+
+- Limited food, water, gasoline
+
+- Mobility and supplies <u>crucial</u>
+
+- Constant back and forth across the desert
+
+## Western Campaign
+
+- **Egypt and Libya**
+
+- British vs Italian troops
+
+- Germany sends Afrika Korps with Erwin Rommel
+
+- GB saves **Suez Canal** in <u>**Battle of El Alamein**</u>
+
+## Operation Torch
+
+- **Algeria and Morocco**
+
+- Anglo-American invasion
+
+- Allies finally seize <u>offensive in Africa</u> despite French resistance
+
+## Tunisia Campaign
+
+- Allied amphibious landing
+
+- US troops under **Patton** cut off Rommel's men from supply bases
+
+- Axis forces surrender which **opened 2nd front for Allies**
