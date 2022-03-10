@@ -193,3 +193,67 @@ Unity
 - US troops under **Patton** cut off Rommel's men from supply bases
 
 - Axis forces surrender which **opened 2nd front for Allies**
+
+# Day 5 - Italian Campaign
+
+---
+
+## Sicily
+
+July 1943
+
+- Begins with Invasion of Sicily under <u>**Operation Husky**</u>
+
+- Amphibious/airborne landings
+
+
+
+August 1943
+
+- Allies reach <u>port city of Messina</u> to find Axis escaped to mainland
+
+## Battle of Monte Cassino
+
+Jan-May 1944
+
+- Allies try to break through Gustav line
+
+- Fortified line of gun pits, bunkers, minefields, barbed-wire
+
+- Difficult, mountainous combat led to 4 month stalemate
+
+## Battle of Anzio
+
+Jan-June 1944
+
+- Attempts to open 2nd front on Anzio beach
+
+- Mistakenly wait to consolidate troops
+
+- Gives Germans too much time to set up defenses
+
+- 5-month battle
+
+## Fall of Rome
+
+June 4, 1944
+
+- Americans capture first Axis capital
+
+- Nazi forces retreat
+
+## Canada & Italy
+
+- Landings of Sicily, Italian mainland
+
+- Fought for 20 months (cities, mtns)
+
+- Left before final surrender to relocate to North Europe
+
+## Brazil & Italy
+
+- Only allied power from South America to provide troops
+
+- Sent Brazilian Expeditionary Force (BEF)
+
+- Fought for 20 months (captured Axis soldiers)
