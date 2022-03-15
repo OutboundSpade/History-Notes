@@ -206,8 +206,6 @@ July 1943
 
 - Amphibious/airborne landings
 
-
-
 August 1943
 
 - Allies reach <u>port city of Messina</u> to find Axis escaped to mainland
@@ -257,3 +255,55 @@ June 4, 1944
 - Sent Brazilian Expeditionary Force (BEF)
 
 - Fought for 20 months (captured Axis soldiers)
+
+# Day 6 - Invasion of Europe
+
+---
+
+## Dieppe Raid
+
+- Aug 1942
+
+- Canadians attempt to land in France to collect intelligence and destroy German defenses
+
+- Unable to achieve air supremacy
+
+- Retreat was major failure for Allies
+
+## European Air Offensive
+
+- 1942-1945
+
+- Bombing of German cities
+
+- US (daylight) GB (night)
+
+- Decimated German air force, fuel facilities
+
+## Normandy Campaign
+
+### D-Day
+
+- June 6, 1944
+
+### Planning Operation Overlord
+
+- Allied force of 3 million train in British Isles
+
+- German focus on Pas-de-Calais thanks to deception plans and French resistance
+
+- US Paratroopers dropped behind enemy lines to disrupt German counterattack
+
+- RCAF: inland bombing runs to soften beachheads
+  
+  
+
+### D-Day Operation Overlord
+
+- Amphibious invasion of France
+
+- US take Utah and Omaha beaches
+
+- Canada takes Juno Beach
+
+- Allies push inland
