@@ -295,8 +295,6 @@ June 4, 1944
 - US Paratroopers dropped behind enemy lines to disrupt German counterattack
 
 - RCAF: inland bombing runs to soften beachheads
-  
-  
 
 ### D-Day Operation Overlord
 
@@ -307,3 +305,61 @@ June 4, 1944
 - Canada takes Juno Beach
 
 - Allies push inland
+
+# Day 7 - European Theatre
+
+---
+
+## North France Campaign
+
+June-Sept 1944
+
+- **US-Canada** breakout offensive
+
+- Siezed port cities
+
+- Broke through German lines
+
+- Liberated Paris
+
+## South France Campaign
+
+Aug-Sept 1944
+
+- **US forces** link up Allies from North and South at Sombernon
+
+## Battle of the Scheldt
+
+- Oct 1944 (5 weeks)
+
+- take Dutch ports along Sheldt River
+
+- Germans flooded land by busting dams making advance difficult
+
+- **Canadian** Victory: Liberated Netherlands
+
+## Rhineland Campaign
+
+Sept 1944 - March 1945
+
+- **US** and **1st Canadian Army** cross Rhine River by seizing 64-mile string of bridges through Netherlands
+
+- Operation Market (air) Garden (ground)
+
+- Problem: Paratroopers displaced with weak radio, Slow relief from ground forces
+
+- Result: Entry into Germany delayed 6 months
+
+## Ardennes-Alsace Campaign
+
+Dec 1944 - Jan 1945
+
+- **Battle of the Bulge**
+
+- Germany surprise attacks Allies in mtns of Belgium, France, Luxembourg
+
+- Cold weather and thick fog prevent air resupply at first
+
+- Ended with better weather and **RCAF** and <u>**US Air force aid**</u>
+
+- Last German offensive
