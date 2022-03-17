@@ -363,3 +363,59 @@ Dec 1944 - Jan 1945
 - Ended with better weather and **RCAF** and <u>**US Air force aid**</u>
 
 - Last German offensive
+
+# Day 8 - Early Pacific War
+
+---
+
+## Battle of Hong Kong
+
+- Dec 8-25, 1941
+
+- Canadians respond to Japanese attack on British colony
+
+- Mainland fell to Japan
+
+- Hundreds of the Canadians POWs
+
+## Battle of Bataan
+
+- January - April 1942
+
+- US troops stranded in Philippines with no reinforcements
+
+- Japanese victory
+
+- 60,000 Filipinpo & 15,000 American soldiers surrendered **(Bataan Death March)**
+
+## Doolittle's Raid
+
+- April 18th 1942
+
+- 16 B-25s sent to bomb Tokyo
+
+## Midway Battle
+
+- June 4-7, 1942
+
+- U.S. Naval forces end threat to U.S. mainland
+
+- <u>**Turning point of the Pacific War!!!**</u>
+
+## Aleutians Campaign
+
+- June 1942 - Aug 1943
+
+- Japan bombed/occupied Attu and Kiska
+
+- **Canada** assisted **US forces** in retaking islands
+
+## Mexico & Pacific
+
+- Mexico offered counterintelligence to US
+
+- Squadron 201 (Aztec Eagles)
+  
+  - Supported US airmen in Pacific
+  
+  - Arrived in Philippines in 1945
