@@ -419,3 +419,39 @@ Dec 1944 - Jan 1945
   - Supported US airmen in Pacific
   
   - Arrived in Philippines in 1945
+
+# Day 9 - Pacific Front
+
+---
+
+## Battle of Guadalcanal
+
+- August 1942
+
+- Japan building airbase in Solomon Islands
+
+- 1st US Offensive
+
+- US stops Japan's march to Australia
+
+## Battle of Iwo Jima
+
+- Feb - March 1945
+
+- US attempts capture of airfields on Japanese home island
+
+- Well defended
+
+- Most Japanese are killed or missing
+
+## Battle of Okinawa
+
+- April - June 1945
+
+- Islands was to be used as base to invade Japan
+
+- Fiercest fighting did not take place until troops were on island
+
+- Japanese pledge to fight to the death (Kamikaze, Banzai charges)
+
+- Last and largest battle of Pacific
