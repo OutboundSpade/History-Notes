@@ -455,3 +455,43 @@ Dec 1944 - Jan 1945
 - Japanese pledge to fight to the death (Kamikaze, Banzai charges)
 
 - Last and largest battle of Pacific
+
+# Day 10 - Eco/Diplomatic Effects of WWII
+
+---
+
+## Economic Effects
+
+### Canada
+
+- **Funding:** Victory Bonds & increased income tax
+
+- **Industry:** surpassed agriculture, **Crown Corporations** made aircraft (Lancaster bomber), ships, and small arms
+
+- **Trade:** increased with US
+
+- **Impact:** Became a modern, efficient economy. Unemployment decreased
+
+### Mexico
+
+- **Braceros Program:** 300,000 Mexicans worked low-paying agricultural jobs in US
+
+- **Industry:** infrastructure developed, shipped raw materials
+
+- **Trade:** increased with US
+
+- **Impact:** national income tripled (1940-1946)
+
+## Diplomatic Effects
+
+### Canada
+
+- **Paris Peace Treaty:** allowed limited input
+
+- **Post-War:** pathway to full independence
+
+### Mexico
+
+- **Paris Peace Treaty:** not one of the original signatories
+
+- **Post-War:** joins Organization of American States in 1948
