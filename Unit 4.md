@@ -495,3 +495,55 @@ Dec 1944 - Jan 1945
 - **Paris Peace Treaty:** not one of the original signatories
 
 - **Post-War:** joins Organization of American States in 1948
+
+# Day 11 - Social Impact of WWII
+
+---
+
+## Women
+
+- Worked in industry, journalism, armed forces, nursing
+
+- 1st time the armed services actively recruited women
+
+- “8-hour orphans”
+
+- Frugality was encouraged through <u>victory gardens</u>
+
+## African Americans
+
+- Segregated in Military
+
+- Start of war: non combat roles
+
+- End of war: infantrymen, pilots, tankers, medics
+
+- 992 Tuskegee Airmen served in North Africa and Europe
+
+- Double Victory Campaign
+
+- Congress of Racial Equality (1942) led to civil rights protests after GI ineligibility
+
+## Native Americans
+
+- Marines used Navajo “code talkers” which stopped Japan from decoding messages
+
+- GI ineligibility for Indian veterans
+
+- **<u>National Congress of American Indians (1944)</u>**
+
+## Mexican Americans
+
+- Served in integrated units
+
+- Veterans denied medical services by US Dept of Veteran affairs
+
+- **<u>American GI Forum</u>** created in 1948 to expand rights
+
+- Tensions between “zoot suiters” and U.S. servicemen caused violent clashings in Los Angeles
+
+
+
+# Day 12 - Japanese Internment Camps
+
+---
