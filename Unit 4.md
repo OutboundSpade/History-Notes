@@ -542,8 +542,54 @@ Dec 1944 - Jan 1945
 
 - Tensions between “zoot suiters” and U.S. servicemen caused violent clashings in Los Angeles
 
-
-
-# Day 12 - Japanese Internment Camps
+# Day 12 - Treatment of Japanese
 
 ---
+
+## Japanese Americans
+
+- FDR issued Executive Order #9066 to relocate Issei and Nisei Japanese (1942-1944)
+  
+  - Issei: 1st Gen. Japanese immigrants
+  
+  - Nisei: 2nd Gen. Japanese-Americans
+
+- conditions of internment camps varied
+
+- US Gov't apologizes and pays each internee $20,000 in **Civil Liberties Act of 1988**
+
+## Japanese-Canadians
+
+- **Exiled:** to remote areas of British Columbia
+
+- **Personal Property:** used to pay for camps. No financial assistance
+
+- **Unlike in the US,** Canada provided no food, clothing, or schooling above elementary
+
+- **1945:** Option to resettle outside of BC or return to Japan
+
+- **1988:** Canadian settlement included <u>**official apology**</u>, payment of <u>**$21,000**</u> to each survivor, **<u>community fund of $12 million</u>**
+
+## Japanese-Mexicans
+
+- **Exiled:** to Mexico City, Guadalajara, Chihuahua
+
+- **Captive:** forced labor on ranches
+
+- **Unlike in the US,** food, clothing, schooling were not supplied.
+
+- **Unlike in Latin America,** Mexico refused to send internees to US
+
+- **1957:** Government paid $56,000 to build Japanese Association building/museum
+
+## Japanese-Latin Americans
+
+- **Exiled:** to INS camps in NM and TX
+
+- **Conditions:** Varied. Still held without charge in a foreign country.
+
+- **1945:** Some returned to former countries, while hundreds remained in US as undocumented "immigrants".
+
+- **1980:** excluded from US Civil Liberties Act
+
+- **1990s:** Lawsuits resulted in settlement of **<u>US letter of apology</u>**, payment of $**<u>5,000</u>** to each survivor
